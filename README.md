@@ -2,6 +2,7 @@
 ### We will always remember you..
 
 - [Déßtróyér'ß Ráhúl](https://github.com/DESTROYERXRAHUL)
+- [Yusuf Usta](https://github.com/yusufusta)
 - [@fusufs](https://t.me/fusufs)
 
 <p align="center">
